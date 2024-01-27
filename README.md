@@ -1,0 +1,5 @@
+- Hello am Eliud Gideon
+- Im interested in computer software and web applications
+- currently learning
+- Looking forward to embrace my intelligence
+- You can reach me through ndorongoe@gmail.com 0705524094
